@@ -1,5 +1,5 @@
 # honey
-hello honey
-hey hieee
+hello iam thriveni
+hey hi
 hieee
 isit
